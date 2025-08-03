@@ -1,10 +1,19 @@
 # induction
 
-# DAY 1
-My first day experience in GNDEC is very good and different for me.Firstly we have to go to college Gurudwara te atmosphere in Gurudwara is priceless. I meet with new students of CSE and IT and i make new friends in college. When i entered in college auditorium the auditorium was decorated very beautifully. All the teachers are very polite and helpfull. Teachers,Deans and Principle sir all of them motivate us.NCC camp students motivate us to join NCC camp to explore new experiences.I have learned many new things like how to intract with someone.
+Day 1 
 
-# DAY 2
-Day 2 is start with a English proficiency test at 9:30AM and ends at 10:30AM.Than after English proficiency test Math proficiency test was starts at 10:30AM till 11:30PM. After Math proficiency test there will be a break from 11:30AM to 1:00PM. After break there will be a expert lecture by Dr.Arashdeep singh on "Food: A Pivotal Role in Students overall wellness" in college auditorium from 1:00PM to 2:00PM.After that session by Causmic club and launch of induction activities is held in college auditorium from 2:00PM to 3:00PM.
+My first day at GNDEC started at 8:30 a.m. I first went to the Gurudwara Sahib in the college, bowed my head, and listened to the peaceful Shabad Kirtan. It made me feel calm and happy. After the Ardaas, we were served tea, snacks, and refreshments.
 
-# DAY 3
-Third day in college is very different and interesting. Expert lecture by dr.Jaswinder Singh incharge of IAPT is organised in college auditorium from 9:00AM to 11:00AM this is very interesting lecture all the students enjoy this lecture Dr.Jaswinder Singh perform many different science experiments related to science. Dr.Jaswinder Singh teaches science in very different way. He teaches science with experiments and practicality all studests enjoy this lecture very much.Than after that a expert lecture by Dr.Priya Darshni madam on "Universal Human Values " is held in auditorium from 11:00AM to 1:00PM.
+From 10:00 a.m. to 1:00 p.m., I attended the induction program in the auditorium. Teachers and seniors welcomed us warmly and explained about the different courses, NCC, and other activities in the college. After a short break, the session continued from 1:30 p.m. to 3:30 p.m., where teachers gave tips on scoring well in exams, performing in labs, and taking part in activities. It was a wonderful start to my college journey.
+
+Day 2 
+
+The second day began with an English Proficiency Test at 9:30 a.m., which ended at 10:30 a.m. This was followed by a Mathematics Proficiency Test from 10:30 a.m. to 11:30 a.m. Both tests helped check our skills before regular classes start.
+
+After a break from 11:30 a.m. to 1:00 p.m., we attended an expert lecture by Dr. Arashdeep Singh on “Food: A Pivotal Role in Students’ Overall Wellness” in the auditorium. The lecture was very interesting and showed how healthy food is important for both body and mind. The day ended with a session by the Causmic Club and the launch of induction activities from 2:00 p.m. to 3:00 p.m. It was a day full of learning and inspiration.
+
+Day 3 
+
+The third day was exciting and different. From 9:00 a.m. to 11:00 a.m., we had an expert lecture by Dr. Jaswinder Singh, Incharge of IAPT, in the auditorium. He taught science in a fun and practical way by performing many experiments. All students enjoyed the lecture and learned science in a new way.
+
+From 11:00 a.m. to 1:00 p.m., there was another expert lecture by Dr. Priya Darshni on “Universal Human Values.” This session was inspiring and taught us the importance of values in our personal and social life. Overall, the day was full of knowledge, excitement, and new experiences.
